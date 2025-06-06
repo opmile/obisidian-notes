@@ -1,4 +1,4 @@
-[[AI]]
+[[1 ai]]
 
 https://www.youtube.com/watch?v=qU3fmidNbJE&ab_channel=TinaHuang
 
